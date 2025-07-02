@@ -38,7 +38,7 @@ The platform provides a course program designed to help members grow their resel
 
 ---
 
-[Join Profit Lounge Now](https://kelexbawz.com/profitlounge)
+[Join Profit Lounge Now](https://whop.com/profitlounge?a=kelechienwere1234)
 
 ---
 
@@ -50,7 +50,7 @@ For those hesitant to commit immediately, Profit Lounge offers a free server whe
 
 ---
 
-[Join Profit Lounge Now to Unlock Exclusive Deals](https://kelexbawz.com/profitlounge)
+[Join Profit Lounge Now to Unlock Exclusive Deals](https://whop.com/profitlounge?a=kelechienwere1234)
 
 ---
 
@@ -80,7 +80,7 @@ Profit Lounge caters to a diverse audience, including:
 
 ---
 
-[Join Profit Lounge Now to Start Saving Today](https://kelexbawz.com/profitlounge)
+[Join Profit Lounge Now to Start Saving Today](https://whop.com/profitlounge?a=kelechienwere1234)
 
 ---
 
@@ -110,7 +110,7 @@ However, some users have expressed concerns:
 
 ---
 
-[Join Profit Lounge Now to Access Top Reselling Opportunities](https://kelexbawz.com/profitlounge)
+[Join Profit Lounge Now to Access Top Reselling Opportunities](https://whop.com/profitlounge?a=kelechienwere1234)
 
 ---
 
@@ -122,4 +122,4 @@ If you're serious about reselling and looking for a supportive community to help
 
 ---
 
-[Ready to See If Profit Lounge Is Right for You? Check It Out Here](https://kelexbawz.com/profitlounge)
+[Ready to See If Profit Lounge Is Right for You? Check It Out Here](https://whop.com/profitlounge?a=kelechienwere1234)
